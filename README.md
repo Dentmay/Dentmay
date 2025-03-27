@@ -11,4 +11,3 @@ they/them
 ![1000016447](https://github.com/user-attachments/assets/fda807e7-23f5-47e5-9e46-e5c0378a074a)
 
 
-(_ _ ) . . z Z
