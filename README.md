@@ -1,4 +1,7 @@
-## Hi there 👋
+![1000016440](https://github.com/user-attachments/assets/94ac14f0-b88c-43a0-b282-90032f7273dc)
+![1000016447](https://github.com/user-attachments/assets/14cbfd9a-4c69-40ed-95bf-e34a07f55f3f)
+![1000016446](https://github.com/user-attachments/assets/20272fe7-da68-4b30-8860-9d153f17f65b)
+
 
 <!--
 **Dentmay/Dentmay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
