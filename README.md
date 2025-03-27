@@ -1,19 +1,14 @@
-![1000016440](https://github.com/user-attachments/assets/94ac14f0-b88c-43a0-b282-90032f7273dc)
-![1000016447](https://github.com/user-attachments/assets/14cbfd9a-4c69-40ed-95bf-e34a07f55f3f)
-![1000016446](https://github.com/user-attachments/assets/20272fe7-da68-4b30-8860-9d153f17f65b)
+![1000016441](https://github.com/user-attachments/assets/b92415a6-ea0e-4cd1-8a33-0f8cd99d88ec)
+
+゛ ⸝⸝.ᐟ⋆
 
 
-<!--
-**Dentmay/Dentmay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+they/them
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![1000016446](https://github.com/user-attachments/assets/446d2429-6d7d-4831-93cb-9ccbd02b9b24)
+
+![1000016447](https://github.com/user-attachments/assets/fda807e7-23f5-47e5-9e46-e5c0378a074a)
+
+
+(_ _ ) . . z Z
