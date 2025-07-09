@@ -1,1 +1,11 @@
-![1000056353](https://github.com/user-attachments/assets/35107b72-89fa-4280-b728-9f8646cc1065)
+<div align="center">
+      <img src="https://files.catbox.moe/8ti0wl.png">
+</div>
+
+<div align="center">
+      <img src="https://komarev.com/ghpvc/?username=Dentmay&color=blue&style=plastic&label=_𝜗ৎ_">
+</div>
+
+<div align="center">
+      <img src="https://files.catbox.moe/294zya.webp">
+</div>
