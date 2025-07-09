@@ -3,7 +3,7 @@
 </div>
 
 <div align="center">
-      <img src="https://komarev.com/ghpvc/?username=Dentmay&color=blue&style=plastic&label=_𝜗ৎ_">
+      <img src="https://komarev.com/ghpvc/?username=Dentmay&color=a1ccc0&style=plastic&label=_𝜗ৎ_">
 </div>
 
 <div align="center">
